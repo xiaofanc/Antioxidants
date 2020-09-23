@@ -1,2 +1,2 @@
 
-Analysis of antioxidants for dietary structure 
+Analysis of antioxidants for diet
